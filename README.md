@@ -8,5 +8,3 @@ https://combr743.wordpress.com
 [Mapeamento de Feedbacks (1).pdf](https://github.com/talitakelen/Trabalho-/files/11987198/Mapeamento.de.Feedbacks.1.pdf)
 ![WhatsApp Image 2023-07-06 at 21 31 58](https://github.com/talitakelen/Trabalho-/assets/112034325/0812051e-952a-4a15-9456-bbfa97b778c7)
 
-
-[O que é o teste automatizado (1) (2).pdf](https://github.com/talitakelen/Trabalho-/files/11987204/O.que.e.o.teste.automatizado.1.2.pdf)
